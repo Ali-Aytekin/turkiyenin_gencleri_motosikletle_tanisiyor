@@ -1,3 +1,0 @@
-# turkiyenin_gencleri_motosikletle_tanisiyor
-Motosikletle Geleceğe Sosyal Sorumluluk Projesi
-"# turkiyenin_gencleri_motosikletle_tanisiyor" 
